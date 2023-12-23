@@ -6,7 +6,7 @@ Zoom meeting id:[ 852 2104 8209 ]  https://us02web.zoom.us/j/85221048209?pwd=WFR
 Password: Send to you 
 
 
-Practicle session 20-30 May 2024
+Practical session 20-30 May 2024
 Rajesh  - 9416413104
 
 #Imp Links: 
